@@ -22,7 +22,7 @@ With a strong background in both data analytics and bookkeeping, I bridge the ga
 - Zoho Books  
 - FreshBooks  
 - Wave Accounting  
-- Manual Bookkeeping (Theory & Practice)
+- Manual Bookkeeping
 
 ---
 
